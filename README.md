@@ -21,3 +21,5 @@
 [DAY10 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/33eb7951b36c653d7f4940eae47b2c7d8ca2a349379ce37ebb94c80a53ab9359)
 
 [DAY11 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/ea4ffffd2144e4da4be4bdb371d892d62440ecf845a0f7b3858d054eeb94081a)
+
+[DAY12 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/2384947cf3d7b93c0415a9bb39d8f8e541f38d209d17f4178aa314eaba0884ec)
