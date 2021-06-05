@@ -30,4 +30,6 @@
 
 [DAY15 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/aecea3d0f6ef5ae9dcb6036a595602363df688f086c7ac53e6e4ef401d0e9160)
 
-[DAT16 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/4359108d070b323dc7b2892a51d5b1afee673bb20a54742b33cbd19b363e0f82)
+[DAY16 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/4359108d070b323dc7b2892a51d5b1afee673bb20a54742b33cbd19b363e0f82)
+
+[DAY17 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/6033a3fc2e60402dadcd0f347c480cebff7feac6a07382ae5e8f6abbea03f94c)
