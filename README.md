@@ -33,3 +33,6 @@
 [DAY16 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/4359108d070b323dc7b2892a51d5b1afee673bb20a54742b33cbd19b363e0f82)
 
 [DAY17 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/6033a3fc2e60402dadcd0f347c480cebff7feac6a07382ae5e8f6abbea03f94c)
+
+
+[DAY18 RECORDING SESSION LINK](https://transcripts.gotomeeting.com/#/s/1f3ce240427e5a3e3e9bf7c8d3b3fa62b11bb943d0396630dbb0f082fe18ec0a)
